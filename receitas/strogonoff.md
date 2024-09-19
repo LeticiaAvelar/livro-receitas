@@ -1,4 +1,4 @@
-# Panqueca do Gabs 🫓
+# Panqueca do Gabs 👩‍🍳
 
 ## INGREDIENTES
 - 1 ovo
@@ -9,9 +9,9 @@
 - 1 colher de fermento
 
 ## MODO DE PREPARO
-1- Bata na batedeira/liquidificador ou na mão 1 ovo, 60 gramas de açúcar ( 2½ colheres) e 2 colheres cheias de manteiga/margarina.
-2 - Nessa mistura, adicione 1½ xícara de farinha de trigo e ½ xícara de leite.
-3 - Adicione uma colher de fermento.
+- Bata na batedeira/liquidificador ou na mão 1 ovo, 60 gramas de açúcar ( 2½ colheres) e 2 colheres cheias de manteiga/margarina.
+- Nessa mistura, adicione 1½ xícara de farinha de trigo e ½ xícara de leite.
+- Adicione uma colher de fermento.
 
 Para fritar, é só usar uma frigideira, em fogo baixo, com um pouquinho de manteiga. Se tiver uma frigideira antiaderente é melhor, não sendo preciso usar manteiga (talvez só na primeira).
 
