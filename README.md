@@ -7,5 +7,7 @@ Se você tem uma receita incrível que gostaria de compartilhar, fique à vontad
 
 ### O que você vai encontrar aqui:
 - Panqueca do Gabs
+- Strogonoff de Frango
+- Pão com Queijo na Airfryer
 
 📜 Sinta-se à vontade para usar e compartilhar!
