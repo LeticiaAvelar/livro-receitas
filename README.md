@@ -13,6 +13,7 @@ Se você tem uma receita incrível que gostaria de compartilhar, fique à vontad
 - Panqueca do Gabs
 - Strogonoff de Frango
 - Pão com Queijo na Airfryer
+- Linguiça Recheada
 
 
 
